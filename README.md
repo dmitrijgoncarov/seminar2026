@@ -1,1 +1,1 @@
-# seminar2026.io
+# seminar2026
